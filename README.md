@@ -1,2 +1,2 @@
-# Mahendra-Pratap-Swain-s-Profile
+# Mahendra-Pratap-Swain-Profile
 MY SCIENTIFIC PROFILE
